@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @VitalityInnovation
+- 👀 I’m interested in website development, front and back
+- 🌱 I’m currently learning everything related to IC
